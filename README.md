@@ -9,7 +9,7 @@ I am a seasoned software engineer with over 10 years of experience in building i
 
 ## Contact Information
 
-- Email: adam.guido@outlook.com
+- Email: adamguido11@gmail.com
 
 ## Professional Achievements
 
